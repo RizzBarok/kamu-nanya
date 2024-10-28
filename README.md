@@ -1,0 +1,2 @@
+# kamu-nanya
+cari sendiri
